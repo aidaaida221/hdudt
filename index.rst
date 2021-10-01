@@ -3,11 +3,11 @@ Updated: [October,1 2021] User Online 69475
 
 Free Brawl Stars Gems Generator Without Human Verification No Survey.Brawl Stars Cheats 2021 -Brawl Stars free gems generator no survey Brawl Stars Free Gems Generator Free No Verification Gems Hack for Brawl Stars.[Free Gems!] Brawl Stars Gems Generator 2021 Hacker Tools No Survey Working Cheats 100% Brawl Stars Free Gems
 
-`Click Here To Get Free Gems. <https://freetricks.website/newbrawlgen/>`__
+`Click Here To Get Free Gems. <https://filesmart.net/54b612b>`__
 
-`Click Here To Get Free Gems. <https://freetricks.website/newbrawlgen/>`__
+`Click Here To Get Free Gems. <https://filesmart.net/54b612b>`__
 
-`Click Here To Get Free Gems. <https://freetricks.website/newbrawlgen/>`__
+`Click Here To Get Free Gems. <https://filesmart.net/54b612b>`__
 
 
 Free Gems Brawl Stars | Gems Generator for Brawl Stars 2021 Here’s some basic tips to getting started if you’re a complete n00b:The game allows you to enter a map, most commonly with 2 other players, in a 3v3 set up (this depends on the events, but we’ll get to that in a minute).You play as a Brawler. These Brawlers are the game’s characters. There are currently 11 Brawlers available. You start with one and as you play you unlock new brawlers. These brawlers also have various types. Some are fighters or healers while others are assassins or sharp shooters. Each brawler as an Attack, Super and Star Power. One of our favourite n00b brawlers is Nita. The evil little kid in the bear hat. She is able to rupture or play overbearing depending on what you need but her Star Power is Bear With Me - where she releases her own bear into the arena to fight on her behalf.The more you play, the more brawlers you unlock. The best way to learn their skills is to play with them and level them up. Easy!Now to the events.
